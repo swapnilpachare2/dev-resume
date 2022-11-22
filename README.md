@@ -1,1 +1,1 @@
-https://swapnilpachare2.github.io/developer-resume
+https://swapnilpachare2.github.io/dev-resume
